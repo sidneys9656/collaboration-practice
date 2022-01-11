@@ -4,7 +4,7 @@
 #### 4
 #### 5
 #### 6
-#### 7
+#### 7 Plenty have come before us and most have met their grisly end, many more equipped than you and I.-quirrel
 #### 8
 #### 9
 #### 10
